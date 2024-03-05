@@ -10,6 +10,7 @@ I'm a great weapon's shooter. One of my favorite things is to do is hike and cam
 
 ##       How to contact me?
 
+If contact is neccesary, I provided some ways to do it.
 Here are ways to communicate with me:
 
    Email: 00281625@student.necc.edu
